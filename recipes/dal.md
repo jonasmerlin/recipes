@@ -39,8 +39,9 @@ Eine einfache Linsensuppe nach Bangladeshi Art.
 7. Die 1KG gequollenen Linsen in den Topf geben.
 8. Zum Köcheln bringen lassen.
 9. Die 2EL Salz und 3 Lorbeerblätter dazugeben.
-10. Deckel drauf. 15 Minuten kochen lassen. Ab und zu umrühren.
+10. Deckel drauf. Ab jetzt Hitze runter. 15 Minuten kochen lassen. Ab und zu umrühren.
 11. Die 2 gehackten Tomaten dazugeben. 15 Minuten kochen lassen. Ab und zu umrühren.
 12. Das beliebige Gemüse dazugeben. 15 Minuten kochen lassen. Ab und zu umrühren.
-13. Eventuell mit Butter bzw. Margarine, Salz und Gewürzen abschmecken und 5 Minuten weiter kochen lassen.
-14. Wenn die Linsen noch hart sind, weiter kochen lassen. Sonst mit frischem Koriander und Brot servieren.
+13. Wenn es während der vorigen 3 Schritte zu dick wird, etwas Wasser dazugeben.
+14. Eventuell mit Butter bzw. Margarine, Salz und Gewürzen abschmecken und 5 Minuten weiter kochen lassen.
+15. Wenn die Linsen noch hart sind, weiter kochen lassen. Sonst mit frischem Koriander und Brot servieren.
