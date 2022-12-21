@@ -50,6 +50,8 @@
 19. Die kürzeren Seiten des Rechteckovals nach innen falten, so dass sie sich vollständig überlappen
 20. Erneut ein bisschen ausrollen, nicht zu doll
 21. Mit einem Pizzroller oder scharfen Messer entlang der kurzen Seiten ca. 2-3cm dicke "Stifte" schneiden
+    1.  Hier ein GIF der letzten Schritte:
+    2.  ![](https://github.com/jonasmerlin/recipes/blob/master/media/kardamomschnecken_rollen.gif?raw=true)
 22. Das hier mit den Stiften machen:
     1.  ![](https://github.com/jonasmerlin/recipes/blob/master/media/cardamombuns_form.gif?raw=true)
 23. Auf Backblech tun und alle Schnecken mit Ei bestreichen
