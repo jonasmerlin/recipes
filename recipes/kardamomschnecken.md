@@ -51,7 +51,7 @@
 20. Erneut ein bisschen ausrollen, nicht zu doll
 21. Mit einem Pizzroller oder scharfen Messer entlang der kurzen Seiten ca. 2-3cm dicke "Stifte" schneiden
 22. Das hier mit den Stiften machen:
-    1.  <Video>
+    1.  ![](https://github.com/jonasmerlin/recipes/blob/master/media/cardamombuns_form.gif?raw=true)
 23. Auf Backblech tun und alle Schnecken mit Ei bestreichen
 24. Für 30 Minuten ruhen lassen
 25. Für 20 Minuten bei 190 Grad Umluft backen
