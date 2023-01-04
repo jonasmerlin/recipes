@@ -32,12 +32,12 @@ Eine einfache Linsensuppe nach Bangladeshi Art.
 
 1. Linsen in einem Sieb waschen und mit etwas Wasser in eine Schüssel zum Aufquellen geben. Zur Seite stellen.
 2. Viel Pflanzenöl in einen Topf geben und erhitzen.
-3. Die 2 gehackten Zwiebeln in den Top geben. Die Zwiebeln sollten im Öl schwimmen. 3 Minuten anbraten.
+3. Die 2 gehackten Zwiebeln in den Topf geben. Die Zwiebeln sollten im Öl schwimmen. 3 Minuten anbraten.
 4. Die 2EL Garam Masala, 2EL Kurkuma und 2EL gemörserten Kreuzkümmelsamen in den Topf geben. 3 Minuten anbraten.
 5. Die 1.5 gehackten od. gequetschten Knollen Knoblauch in den Topf geben. 1 Minute anbraten.
 6. Die 1.5L Wasser in den Topf geben.
 7. Die 1KG gequollenen Linsen in den Topf geben.
-8. Zum Köcheln bringen lassen.
+8. Zum Köcheln bringen.
 9. Die 2EL Salz und 3 Lorbeerblätter dazugeben.
 10. Deckel drauf. Ab jetzt Hitze runter. 15 Minuten kochen lassen. Ab und zu umrühren.
 11. Die 2 gehackten Tomaten dazugeben. 15 Minuten kochen lassen. Ab und zu umrühren.
