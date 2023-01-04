@@ -42,7 +42,7 @@ Ofen auf 180° vorheizen.
    1. 2EL Vanillezucker 
    2. 1 Shot Rum 
    3. Prise Salz 
-   4. Bissen Zitronensaft
+   4. Bisschen Zitronensaft
 9. Das steife Eiweiß aus dem Kühlschrank reinschütten und unterheben
    1.  Sollte das Eiweiß nicht so richtig steif sein, an dieser Stelle noch 1TL Backpulver hinzugeben!
 10. Großes Stück Butter in einer Ofenfesten Pfanne schmelzen
