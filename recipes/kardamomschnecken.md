@@ -24,8 +24,8 @@
 ## Schritte
 
 1. 10 Kardamomkapseln im Mörser aufmörsern
-2. 350ml Milche in Kochtopf tun
-3. Gemörserste Kapseln samt Schale in Milch tun
+2. 350ml Milch in Kochtopf tun
+3. Gemörserte Kapseln samt Schale in Milch tun
 4. Milch erhitzen bis sie fast kocht
 5. Von der Hitze nehmen
 6. 50g Butter in warmer Milch schmelzen/verrühren
