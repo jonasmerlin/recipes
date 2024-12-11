@@ -14,6 +14,7 @@ Eine einfache Linsensuppe nach Bangladeshi Art.
 - 1.5 Knollen Knoblauch (gehackt oder gequetscht)
 - 2 Tomaten (gehackt)
 - Beliebiges Gemüse
+- Frischer Koriander zum Garnieren
 
 ### Gewürze
 
