@@ -26,4 +26,4 @@ Zubereitungszeit ca. 20 Minuten (10 Minuten davon in Anwesenheit)
 6. Teig in Pfanne geben und durch Balancieren der Pfanne gleichmäßig verteilen
 7. Wenn sich kleine Tunnel an der Oberfläche bilden (nach ca. 2 Minuten) wenden
 8. Noch mal genau so lange von der anderen Seite braten
-9.  Fertig!
+9. Fertig!
