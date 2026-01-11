@@ -1,4 +1,4 @@
-# Kaiserschmarrn
+# Dinkel-Grieß
 
 Ein Fruktoseintolerantengerechtes Rezept für Dinkel-Grießbrei. Adaptiert das Rezept von der SchapfenMühle Dinkel-Grieß Verpackung.
 
